@@ -2,3 +2,4 @@
 - 👀 I’m interested in Software development and cutting edge algorithms development
 - 🌱 I’m currently Studying Computer Science (Final level)
 - 💞️ My first reaction to a problem is to solve it.
+- Reach me via emai at maebavhutshilo10430@gmail.com
